@@ -1,0 +1,1 @@
+This comprehensive guide will walk you through the process of ordering a product from Amazon.in, whether you're using the website or the mobile app. It is intended for individuals of all ages who are interested in internet shopping. 
