@@ -1,1 +1,1 @@
-# How-to-rder-a-Product-from-Amazon
+# How-to-order-a-Product-from-Amazon
